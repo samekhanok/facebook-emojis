@@ -20,7 +20,7 @@ First of all, it would make Facebook similar to a number of online forums, the p
 
 The second reason Zuckerberg called the reluctance to distribute the negative. It is more than enough in social networks, and more importantly - to prevent its appearance, and not to create tools for expressing discontent.
 
-And the third reason is that it is not profitable for advertising. Not many companies would agree that posts with their products are subject to active “minus” by users.
+And the third reason is that it is not profitable for advertising. Not many companies would agree that posts with their products are subject to active “minus” by users.dfd
 
 Even after all this, Facebook users have not lost hope of the appearance of the “Dislink” button. The community of fans of this button currently has about 3.2 million participants. When there was an opportunity to sign the petition, it was supported by almost 1, 5 million people.
 
